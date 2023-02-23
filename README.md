@@ -1,2 +1,2 @@
-- 👋 Hi, I’m Petri Kuha
+- 👋 Päivää, olen Petri Kuha
 
